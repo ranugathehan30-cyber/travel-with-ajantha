@@ -1,10 +1,12 @@
 # Travel with Ajantha
 
-Welcome to Travel with Ajantha, your trusted local tour guide in Galle, Sri Lanka.
+Experience the best of Sri Lanka with Travel with Ajantha, your trusted local tour guide based in Galle.
 
-Explore the beauty of Sri Lanka with private tours, airport transfers, wildlife safaris, cultural experiences, and beach adventures. We offer friendly service, comfortable transportation, and unforgettable travel experiences.
+We offer private tours, airport transfers, wildlife safaris, cultural experiences, and unforgettable day trips across Sri Lanka. Explore historic Galle Fort, relax on the beautiful beaches of Unawatuna, discover sea turtles, enjoy scenic tea plantations in Ella, and experience the excitement of Yala Safari.
 
-## Popular Tours
+Our goal is to provide safe, comfortable, and memorable journeys while showcasing the natural beauty, culture, and hospitality of Sri Lanka.
+
+## Our Popular Tours
 
 * Turtle Watching Tour
 * Galle Fort City Tour
@@ -15,19 +17,19 @@ Explore the beauty of Sri Lanka with private tours, airport transfers, wildlife 
 * Tea Factory Visit
 * Silk Factory Visit
 * Gem Museum Tour
-* Ella Day Tour
+* Ella Tour
 * Yala Safari Tour
 
-## Why Choose Us?
+## Why Travel With Ajantha?
 
-* Local experienced guide
-* Private and customized tours
-* Airport pickup and transfers
-* Affordable prices
-* Friendly and reliable service
-* WhatsApp booking support
+✓ Experienced Local Guide
+✓ Private & Customized Tours
+✓ Airport Pick-Up & Drop-Off
+✓ Affordable Prices
+✓ Friendly & Reliable Service
+✓ Easy WhatsApp Booking
 
-## Contact
+### Contact Us
 
 📍 Galle, Sri Lanka
 
@@ -35,6 +37,5 @@ Explore the beauty of Sri Lanka with private tours, airport transfers, wildlife 
 
 💬 WhatsApp: +94 760 467 102
 
-▶ YouTube: Travel with Ajantha
+Thank you for choosing Travel with Ajantha. We look forward to helping you discover the beauty of Sri Lanka.
 
-Thank you for visiting Travel with Ajantha. We look forward to showing you the best of Sri Lanka.
